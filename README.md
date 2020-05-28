@@ -1,7 +1,7 @@
 # Rules
 The system by which we tell stories together
 
-I am a humble magister who stands on the shoulders of the those magi before me.
+I am a warlock who stands on the shoulders of those magic wielding stewards who came before me.
 
 I am not one of the sorcerers who put the lighting in the rocks to make them think.
 
